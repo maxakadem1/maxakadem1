@@ -1,6 +1,6 @@
 # Hi there, I'm Max, sometimes MAX_NAVERN
 
-![image](https://user-images.githubusercontent.com/63835313/213091229-9638b02f-a75e-4277-9ae9-1e92b74068a0.png)
+![image](https://user-images.githubusercontent.com/63835313/213091293-969fbc01-13de-4e21-8cdb-4076fd4b630c.png)
 
 
 ## I'm a Computer Science Student, Digital Atrist and Gaming Enthusiast!
